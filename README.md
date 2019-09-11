@@ -1,2 +1,2 @@
 # Prashantmaurya
-for learn something about online marketing
+online marketing
